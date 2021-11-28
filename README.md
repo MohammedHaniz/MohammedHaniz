@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @MohammedHaniz
 - 👀 I’m interested in ethical hackings, studying about cyber security systems
-Addicted to cars and bikes, hacking games😜
+Addicted to cars and bikes, 
+love to speak in french, hacking games😜
 - 🌱 I’m currently learning B.TECH-IT IN
 SRI MANAKULA VINAYAGAR ENGENEERING COLLEGE, MADAGADIPET,
 IN PUDUCHERRY,INDIA
